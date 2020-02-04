@@ -13,7 +13,8 @@ By viewing cultural production through a parabolic lens, my research expands on 
 
 
 ### Center for Second Language Studies
+Melanie Forehand is the Program Assistant at the Center for Second Language Studies at Vanderbilt University.The Center for Second Language Studies (CSLS) provides language support for a variety of stakeholders at the university and the broader community.My duties at the Center for Second Language Studies include organizing our annual foreign language fair, planning our monthly professional development workshops, and overseeing and mentoring a team of graduate students. Over the past two years, I have organized workshops on developing effective study abroad programs, best practices in language coordination, and effective methods for online teaching. I am also the co-creator of the digital language-teaching lesson repository, Language Panda (www.languagepanda.org). As a co-creator, I have developed a variety of lessons using digital tools such as Google Form quizzes with embedded media and text, Voyant Tools for text analysis, Flipgrid speaking exercises, and Edpuzzle videos with embedded comprehension questions for formative assessment. At the Center, I currently lead two weekly working groups, Language Panda Project Development for Faculty and Graduate Students and Teaching with Technology. Recent topics that I have discussed with the teaching community have included ADA accessibility, creating effective listening exercises, and out-of-the-box tech tools.
 
 
+### personal website
 
-personal website
